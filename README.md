@@ -1,1 +1,1 @@
-YOLOP on dog
+YOLOP on people
